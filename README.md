@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jazeela221b
 - 👀 I’m interested in... creating creativity to reality!
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...to make interest possible
 
 - 📫 How to reach me ...www.linkedin.com/in/jazeelap
 
