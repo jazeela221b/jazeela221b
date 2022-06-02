@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Jazeela P..@jazeela221b
-- 👀 I’m interested in... creating creativity to reality!
+- 👀 I’m interested in... creating creativity to reality!✨
 - 🌱 I’m currently learning ...to my make my interest possible
-
 - 📫 How to reach me ...mail me at jazeela2020.221b@gmail.com
 
 <!---
