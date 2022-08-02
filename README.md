@@ -2,7 +2,7 @@
 - 👀 I’m interested in... creating creativity to reality!✨
 - 🌱 I’m currently learning ...to my make my interest possible
 - 📫 How to reach me ...mail me at jazeela2020.221b@gmail.com
-- <img src="https://img.icons8.com/color/30/000000/linkedin-circled--v1.png"/>  connect with me [linkedin.com/in/jazeelap](https://www.linkedin.com/in/jazeelap/)
+- <img src="https://img.icons8.com/color/30/000000/linkedin-circled--v1.png"/> connect with me @ [linkedin.com/in/jazeelap](https://www.linkedin.com/in/jazeelap/)
 
 
 
